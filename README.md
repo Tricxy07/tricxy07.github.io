@@ -1,0 +1,1 @@
+# tricxy07.github.io
